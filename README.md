@@ -4,7 +4,7 @@
 
 👯 Interested in collaborations on blockchain projects. 
 
-🤔 Seeking updates on blockchain tech.
+🤔 Seeking updates on blockchain tech, especially tokenization.
 
 💬 Ask me about data analysis, blockchain, digital marketing strategy.
 
