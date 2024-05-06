@@ -8,7 +8,7 @@
 
 💬 Ask me about data analysis, blockchain, digital marketing strategy.
 
-📫 Reach out on LinkedIn or via email at [your email address].
+📫 Reach out on LinkedIn or via email at https://www.linkedin.com/in/miyoko-shimura/
 
 😄 Pronouns: She/Her
 
