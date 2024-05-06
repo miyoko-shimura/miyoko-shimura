@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there! I'm Miyoko from Japan 👋
 
 🔭 Strategic analyst with 8+ years' experience in scientific analysis. Mentor at Frankfurt School Blockchain Center. Final year BSc Computer Science student.
 
