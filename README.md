@@ -1,6 +1,6 @@
 ### Hi there! I'm Miyoko from Japan 👋
 
-🔭 Digital Consultant with 8+ years' experience in scientific analysis. Mentor at Frankfurt School Blockchain Center. Final year BSc Computer Science student. ASc Mechanical Engineering.
+🔭 Digital Consultant & Mentor at Frankfurt School Blockchain Center. Final year BSc Computer Science student. ASc Mechanical Engineering.
 
 👯 Interested in collaborations on blockchain projects. 
 
@@ -12,4 +12,4 @@
 
 😄 Pronouns: She/Her
 
-⚡ Fun fact: I manage websites, social media, and an online cake shop featured in Japanese media.
+⚡ Fun fact: I build and manage websites, social media, and even an online cake shop featured in Japanese media.
