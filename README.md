@@ -8,6 +8,6 @@
 
 💬 Ask me about data analysis, blockchain, digital marketing strategy.
 
-📫 Reach out on LinkedIn or via email at https://www.linkedin.com/in/miyoko-shimura/
+📫 Reach out on LinkedIn at https://www.linkedin.com/in/miyoko-shimura/
 
 ⚡ Fun fact: I build and manage websites, social media, and even an online cake shop featured in Japanese media.
