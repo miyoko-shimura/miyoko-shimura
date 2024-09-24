@@ -1,5 +1,5 @@
 ### Hi there! I'm Miyoko from Japan 👋
-### My Blog: http://limefizz.xyz/
+### My Blog: http://limefizz.xyz/<br>
 
 🔭 Digital Consultant & Mentor at Frankfurt School Blockchain Center. Final year BSc Computer Science student. ASc Mechanical Engineering.
 
