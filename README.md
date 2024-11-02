@@ -1,11 +1,9 @@
 ### Hi there! I'm Miyoko from Japan 👋
 ### My Blog: http://limefizz.xyz/
 
-🔭 Digital Consultant & Mentor at Frankfurt School Blockchain Center. Final year BSc Computer Science student. ASc Mechanical Engineering.
+🔭 Mentor at Frankfurt School Blockchain Center. MSc in Financial Engineering Candidate at WorldQuant University
 
-👯 Interested in collaborations on blockchain projects. 
-
-😄 Seeking updates on blockchain tech, especially tokenization.
+😄 Seeking updates on AI and blockchain, especially tokenization.
 
 💬 Ask me about data analysis, blockchain, digital marketing strategy.
 
