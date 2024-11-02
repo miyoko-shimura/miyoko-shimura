@@ -1,4 +1,4 @@
-### Hi there! I'm Miyoko from Japan 👋 My Tech Blog: http://limefizz.xyz/
+### Hi there! I'm Miyoko from Japan 👋 Visit My Tech Blog: http://limefizz.xyz/
 
 🔭 Mentor at Frankfurt School Blockchain Center. MSc in Financial Engineering Candidate at WorldQuant University
 
