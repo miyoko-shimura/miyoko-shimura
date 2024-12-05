@@ -2,8 +2,6 @@
 
 🔭 Mentor at Frankfurt School Blockchain Center. MSc in Financial Engineering Candidate at WorldQuant University
 
-😄 Seeking updates on AI and blockchain, especially tokenization.
-
 💬 Ask me about data analysis, blockchain, digital marketing strategy.
 
 📫 Reach out on LinkedIn at https://www.linkedin.com/in/miyoko-shimura/
